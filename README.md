@@ -15,6 +15,6 @@ https://www.youtube.com/watch?v=7PfLHkNoxIg
 ## Mark Foster  
 
 <hr>
-Names are all from: 
+Names are all from:  
 https://www.youtube.com/watch?v=tnLsh6LO7tk&t=377s  
-Alle Angaben entsprechen **meiner** Meinung. Sie dürfen sich gerne eine eigene bilden.
+Alle Angaben entsprechen <b>meiner</b> Meinung. Sie dürfen sich gerne eine eigene bilden.
